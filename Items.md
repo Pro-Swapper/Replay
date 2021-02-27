@@ -31,3 +31,9 @@
 [Default Umbrella To Aerial Assault One](https://link-to.net/86737/aerialassaultone)
 
 [Marvel Umbrella To Mako](https://link-to.net/86737/mako)
+
+
+
+More replay files on the Discord server.
+
+<a href="https://discord.gg/X3Bg3JwPTC"><img src="https://discord.com/api/guilds/703033424541384784/widget.png?style=banner2"></a>
