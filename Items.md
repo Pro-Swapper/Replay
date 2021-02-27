@@ -14,7 +14,7 @@
 
 ### Pickaxes
 
-*Coming Soon*
+[Harley Hitter To Raider's Revenge (Credit Archie)](https://file-link.net/86737/harleyraiders)
 
 ### Emotes
 
