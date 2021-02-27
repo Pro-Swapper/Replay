@@ -8,6 +8,8 @@
 
 [Default Skin To Travis Scott](https://link-to.net/86737/defaultravis)
 
+[Munitions Expert To Pink Ghoul Trooper (Use Red Style) Credit Archie](https://file-link.net/86737/munitionspinkghoul)
+
 ### Backblings
 
 *Coming Soon*
